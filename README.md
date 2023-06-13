@@ -1,5 +1,5 @@
 ## My-Psychosocial-Counseling-project-in-Tsinghua
-I'm honored to be admitted as a member of Psychosocial Counseling project. This project will start in May,2023.  <br>
+I'm honored to be admitted as a member of Psychosocial Counseling project 2023 in Tsinghua. This project will start in May,2023.  <br>
 Any community or institute in Beijing with a need of Counseling Services will be welcomed. I will perform at least 20 community service hours to graduate from this project. <br>
 Please feel free to attach me by katelynlyu@163.com<br>
 
